@@ -7,7 +7,7 @@
 ##### 📫 How to reach me: 
 ##### - Email    : ummukalsum1297@gmail.com
 ##### - LinkedIn : www.linkedin.com/in/ummukalsumfn
-##### - CV       : https://ummukalsumfn.github.io/
+##### - Resume       : https://ummukalsumfn.github.io/
 
 
 
